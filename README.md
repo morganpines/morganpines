@@ -28,5 +28,5 @@
 </p>
 
 <p align="center">
-  ★ <a href="https://stanfordpines.atabook.org/">strawpage</a> ★
+  ★ <a href="https://stanfordpines.atabook.org/">atabook</a> ★
 </p>
