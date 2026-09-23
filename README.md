@@ -1,7 +1,7 @@
 <h2 align="left">CEO of FORDGAN/LUNAR PORTAL</h2>
 
 <p align="left">
-  <strong>she/her, 20 years old + “non-sharing” OC x canon</strong>
+  <strong>she/her ★ 20 years old + “non-sharing” OC x canon</strong>
 </p>
 
 <p align="left">
