@@ -15,14 +15,14 @@
 </p>
 
 <p align="right">
-  <strong>those creepy/questionable GF fans</br>are NOT welcome here. this includes</br>any bill shippers, defenders or “kins”</br>& anyone who consider</br>themselves “profiction.”</strong></p>
+  <strong>“those” creepy/questionable GF fans</br>are NOT welcome here. this includes</br>any bill shippers, defenders or “kins”</br>& anyone who consider</br>themselves “profiction.”</strong></p>
 
 <p align="center">
   <em>
-    i block + hide freely. if you've said or done something i don't like, or if you<br>
-    make me or my friends uncomfortable, you will be blocked<br>
-    without hesitation. if i have one of your friends blocked,<br>
-    do not attempt to contact me asking about it.<br>
+    i block + hide freely. if you've said or done something i don't like,</br> or if you
+    make me or my friends uncomfortable</br> you will be blocked
+    without hesitation. if i have one of</br>your friends blocked,
+    do not attempt to contact me asking about it.</br>
     boundaries exist for a reason, thank you.
   </em>
 </p>
