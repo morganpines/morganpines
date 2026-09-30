@@ -15,11 +15,11 @@
 </p>
 
 <p align="right">
-  <strong>any creepy/questionable GF fans</br>are NOT welcome here. this includes</br>ANY bill shippers, defenders or “kins”</br>& those who consider</br>themselves “profiction.”</strong></p>
+  <strong>those creepy/questionable GF fans</br>are NOT welcome here. this includes</br>any bill shippers, defenders or “kins”</br>& anyone who consider</br>themselves “profiction.”</strong></p>
 
 <p align="center">
   <em>
-    i block + hide freely. if i don't like you or if you<br>
+    i block + hide freely. if you've said or done something i don't like, or if you<br>
     make me or my friends uncomfortable, you will be blocked<br>
     without hesitation. if i have one of your friends blocked,<br>
     do not attempt to contact me asking about it.<br>
