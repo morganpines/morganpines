@@ -15,7 +15,7 @@
 </p>
 
 <p align="right">
-  <strong>“those” creepy/questionable GF fans</br>are NOT welcome here. this includes</br>any bill shippers, defenders or “kins”</br>& anyone who consider</br>themselves “profiction.”</strong></p>
+  <strong>“those” creepy/questionable GF fans</br>are NOT welcome here. this includes</br>any bill shippers, defenders or “kins”</br>& anyone who considers</br>themselves “profiction.”</strong></p>
 
 <p align="center">
   <em>
