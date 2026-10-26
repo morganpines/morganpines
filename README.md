@@ -5,7 +5,7 @@
 </p>
 
 <p align="left">
-  usually, i'm off-tab/afking, so if you're on my friends list,</br>feel free to whisper or sit beside me! if you're not on my list</br>and there's something you want to tell me, then you can</br>sign my ata instead! however, there's no guarantee</br>i'll reply since i'm not very sociable.
+  usually, i'm off-tab/afking, so if you're on my friends list,</br>feel free to whisper or sit beside me! if you're not on my list</br>and there's something you want to tell me, then you can</br>sign my ata instead - however, there's no guarantee</br>i'll reply since i'm not very sociable.
 </p>
 
 </br>
