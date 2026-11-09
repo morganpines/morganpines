@@ -15,7 +15,8 @@
 </p>
 
 <p align="right">
-  <strong>“those” types of gravity falls fans</br>are NOT welcome here. this includes</br>any bill shippers, apologists or “kins”</br>& anyone who considers</br>themselves “profiction.” i also block/ignore ao3 users.</strong></p>
+  <strong>“those” types of gravity falls fans</br>are NOT welcome here. this includes</br>any bill shippers, apologists or “kins”</br>& anyone who considers themselves “profiction.”</br>ao3 defenders will also be blocked/ignored.</strong></p>
+
 
 <p align="center">
   <em>
